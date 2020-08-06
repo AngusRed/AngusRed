@@ -12,7 +12,7 @@ Not sure how this works, but we shall try!
 [Career Workshop](https://github.com/AngusRed/Career-Workshop) *Work in Progress*
 
 Follow me on [**Twitter**](https://twitter.com/AngusRedBlue)  
-Find me on LI [**LinkedIn](https://www.linkedin.com/in/chwroth/)  
+Find me on LI [**LinkedIn**](https://www.linkedin.com/in/chwroth/)  
 
 <!--
 **AngusRed/AngusRed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

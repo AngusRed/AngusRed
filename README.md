@@ -13,6 +13,7 @@ Not sure how this works, but we shall try!
 
 Follow me on [**Twitter**](https://twitter.com/AngusRedBlue)  
 Find me on LI [**LinkedIn**](https://www.linkedin.com/in/chwroth/)  
+Subscribe to my [**OnlyFans**](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 <!--
 **AngusRed/AngusRed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
